@@ -29,6 +29,10 @@ During this internship, I had the opportunity to work on real-world data and dev
   ✅ Understood how to present insights in a business-friendly manner
   ✅ Improved storytelling with data through visuals
 
+![Screenshot 2025-06-09 000856](https://github.com/user-attachments/assets/0cb68e27-1f6a-40c6-a5f4-216d10197441)
+
+![Screenshot 2025-06-09 000922](https://github.com/user-attachments/assets/2b91aff6-b7ea-4dc1-afca-0cd2c51a806f)
+
 ![Screenshot 2025-06-09 000951](https://github.com/user-attachments/assets/2a5d712d-0e3c-4a23-994b-6652e4e9d76d)
 
 
